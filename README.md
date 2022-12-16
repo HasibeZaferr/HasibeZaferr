@@ -7,3 +7,4 @@
 - ⭐️ My Instagram: http://instagram.com/toucanlearning/
 - 👩‍🎨 My Canva Profile : https://www.canva.com/p/hasibezafer/
 - 🐠 My Figma Profile : https://www.figma.com/@hasibe
+- 👩🏽‍💼 My Linkedin Profile : https://www.linkedin.com/in/hasibezaferr/
